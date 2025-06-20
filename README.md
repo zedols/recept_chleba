@@ -48,3 +48,28 @@ Moj postup na kvaskovy chleba.
 ### Postup
 1. Ak nemas cas, tak daj do chladnicky na aspon 12h (alebo cez noc) a potom vyber.
 2. Ak mas cas, tak nedavaj do chladnicky a nechaj aspon 4h v osatke.
+3. Zevraj [sa to da vediet](https://youtube.com/shorts/t5gMEERhDCk?feature=shared) kedy je cesto pripravene. Ale mne to nikdy tak nefungovalo 😅.
+
+### Bla bla bla
+- 💡 Kamarat mi poradil ze do osatky ma ist vzdy nejaka bezlepkova muka. Potom sa ti cesto nenalepi na osatku, ale musis ju dobre "vymucit" mukou.
+- Ja pouzivam ryzovu muku, len na toto.
+
+
+## 🔥🍞 Pecenie
+
+### Postup
+- Na spodok rury davam do nadoby vodu.
+- Ruru vyhriat na 🌡️ 250c.
+- Vzdy davaj do rury aj plech nech sa zohreje. (vraj to pomaha, aby sa chleba nedopukal).
+- NA plech dam papier na pecenie a vykoprcnem cesto z osatky.
+- Vrch zvyknem 🔪 narezat, alebo niekedy ✂️ nastrihat. Tu vrchnu vrstnu treba "prerusit" aby mal chleba kde rast.
+- Peciem ⌛10min na 250c.
+- Vyberiem vodu z rury.
+- Peciem ⌛30mit na 180c.
+
+## ❄️⏳ Chladnutie
+
+### Postup
+- Chleba vylozim na nieco, aby nebol polozeny. Miska a dve varechy.
+- Potriem vodou. Tak sa aj ta zvysna ryzova muka da dat dole.
+- A chleba treba vzdy nechat kompletne vychladnut!!! a az potom rezat
